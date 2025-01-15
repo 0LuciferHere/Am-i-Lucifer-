@@ -1,3 +1,2 @@
-# khalifayousif
-kjkjk
-# Lucifer\ رب زيدني علماً
+Am i Lucifer?
+رب زيدني علماً
